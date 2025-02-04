@@ -1,0 +1,2 @@
+# Nime-content-manga
+capitulos
